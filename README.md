@@ -1,3 +1,6 @@
+![IAs gerenativas administrando o mercado financeiro](https://github.com/user-attachments/assets/a017e1d4-af05-4b4d-bd2c-a440983b676c)
+
+
 ## Como vai ser o mercado financeiro administrado atraves das IAs Generaivas
 
 ## 📒 Descrição
